@@ -1,1 +1,1 @@
-# ted
+# About Teddy
